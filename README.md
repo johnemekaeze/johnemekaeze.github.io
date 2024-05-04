@@ -1,12 +1,10 @@
 # Data Analyst | Data Scientist
 
-### qwertyuio
-qwertyu
+### Education
+BSc Mathematics
 
 ### poiuyt
-Drtyhj
-- dsfghj
-- qwqaewsdf
+
 
 ### Projects
 wertygufcg
